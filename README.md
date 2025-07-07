@@ -16,7 +16,7 @@
 
 17吃瓜官方电报（telegram）群：https://t.me/bayibayule
 
-17吃瓜官方推特：https://x.com/818yulewang1
+17吃瓜官方推特：https://x.com/17cgb88
 
 17吃瓜新地址获取邮箱
 
