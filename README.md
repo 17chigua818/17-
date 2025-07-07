@@ -14,7 +14,7 @@
 
 17吃瓜永久主页 和 永久入口 需要使用vpn或梯子等科学上网方式
 
-17吃瓜官方电报（telegram）群：https://t.me/bayibayule
+17吃瓜官方电报（telegram）群：https://t.me/cgw16
 
 17吃瓜官方推特：https://x.com/17cgb88
 
